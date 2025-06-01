@@ -1,15 +1,15 @@
-# Thinkific Coupon Code - 25% Discount May 2025
+# Thinkific Coupon Code - 25% Discount June 2025
 
 Are you on the lookout for a legit and verified Thinkific coupon code? Well, if that’s the case, this article might just be what you need.
 
-Thinkific is currently offering a pretty big 25% discount this May. Honestly, it’s probably one of the best times to either start or grow your online course business. Whether you’re a newbie educator eager to share your knowledge or an experienced course creator looking to level up your offerings, this Thinkific discount coupon could help you save a nice chunk on your plans and add-ons.
+Thinkific is currently offering a pretty big 25% discount this June. Honestly, it’s probably one of the best times to either start or grow your online course business. Whether you’re a newbie educator eager to share your knowledge or an experienced course creator looking to level up your offerings, this Thinkific discount coupon could help you save a nice chunk on your plans and add-ons.
 
 Just a heads up—this deal is for a limited time only. So, if you’ve been thinking about investing in your online success, now’s the moment to jump in with Thinkific.
 
 [![Thinkific coupon code](https://github.com/user-attachments/assets/49d7b2d6-1557-46f8-89ee-0b0b04597efa)](https://try.thinkific.com/hv7wrgl93c3m)
 ---
 
-## Latest Thinkific Coupon Codes May 2025 (Active)
+## Latest Thinkific Coupon Codes June 2025 (Active)
 
 Thinkific frequently updates its coupon codes and promotions to give users discounts on various plans and features. So, here’s a quick rundown of the latest active Thinkific coupon codes you can grab:
 
